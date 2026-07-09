@@ -1,5 +1,4 @@
-# stillinit
-Hyyyypeee. WHO wins the Club World Cup 😜
+# Hyyyypeee. WHO wins the Club World Cup 😜
 
 # Still In It ⚽
 
